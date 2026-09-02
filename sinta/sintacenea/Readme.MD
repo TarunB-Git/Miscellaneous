@@ -1,0 +1,1 @@
+This is an old project from June 2026, when BUILD, Karlskrona organized their first major event, and Bill Cockayne encouraged us to apply to YC with visions for the future. Unfortunately, this idea was abandoned surely after, but the concept was cool.
